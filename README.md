@@ -1,0 +1,1 @@
+# golden-s-earning.github.io
